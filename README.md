@@ -1,1 +1,1 @@
-# komiljon.github.io
+# berdiboev.github.io
